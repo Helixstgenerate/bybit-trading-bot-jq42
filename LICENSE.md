@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with bybit trading bot top Strategy | isolated-margin & position-sizing, the #1 bybit trading bot. Includes isolated-margin and position-sizing for a smoother
 
 
 
